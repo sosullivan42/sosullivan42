@@ -11,7 +11,7 @@ Looking to gain:
 Ask me about: 
 
 * maths - BSc and experienced teacher ✅ 
-* running and weights 💪 
+* running and weights - just for fun! 💪 
 
 
 
