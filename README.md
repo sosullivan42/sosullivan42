@@ -1,4 +1,20 @@
-### Hi there 👋
+## Hi there 👋, I'm Sorcha!
+(she/her)
+
+I am training to become a software engineer - currently learning Python!
+
+Looking to gain: 
+
+* experience working on new projects 😀 
+* a new role! ✨
+
+Ask me about: 
+
+* maths - BSc and experienced teacher ✅ 
+* running and weights 💪 
+
+
+
 
 <!--
 **sosullivan42/sosullivan42** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
